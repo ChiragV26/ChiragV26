@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ChiragV26
+- 👀 I’m interested in Gaming Apps
+- 🌱 I’m currently learning UX designing
+- 💞️ I’m looking to get an entry-level job for user experience design
+- 📫 How to reach me chirag.vora26cv@gmail.com
